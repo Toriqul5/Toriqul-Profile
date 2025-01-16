@@ -1,1 +1,1 @@
-https://toriqul5.github.io/Toriqul-Profile/
+https://toriqul-islam.netlify.app/
